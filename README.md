@@ -1,1 +1,1 @@
-LPIA Setu Bekasi
+LPIA Pondok Cabe
